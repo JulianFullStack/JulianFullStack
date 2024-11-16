@@ -23,8 +23,8 @@ Soy Julián Rodríguez de Colombia, tecnólogo en sistemas y Developer full Stac
   
 
 Quieres saber más de mi? ¡Contáctame!<br/>
-WP: +57 3226400155<br/>
-Email: info3226400155@gmail.com
+WP: +57 3244003011<br/>
+Email: contacto3244003011@gmail.com
 
 
 
